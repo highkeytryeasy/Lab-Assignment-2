@@ -2,9 +2,5 @@
 Lab-Assignment-2  
 this is a readme File
 kese hu Arslan ?
-fk u
-Talalaaayy 
-asklfjl;kafn
-lksdnf;knas;f
-aslkjdslakd
+Hey Guys see this I have Chabged the file. It is so Urgent
 
